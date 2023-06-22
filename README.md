@@ -9,7 +9,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 * 🌍  I'm based in Emva
 * ✉️  You can contact me at [naraevskiyivan@gmail.com](mailto:naraevskiyivan@gmail.com)
-*     [Telegram](https://t.me/IvanNaraevskiy)
+*   You can contact me [Telegram](https://t.me/IvanNaraevskiy)
 
 ### Skills
 
